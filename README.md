@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Taliareon
-- 👀 I’m interested in creating
+- 👀 I’m interested in creating.
 - 🌱 I’m currently learning everything I can.
 - 💞️ I’m not looking to collaborate on anything at the moment.
 - 📫 How to reach me ...
